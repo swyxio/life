@@ -1,0 +1,67 @@
+# Life & Career Philosophy
+
+- Life is too short for complaining or lounging.
+- When shit happens, you can reconstruct your reality in a positive way.
+- The Days are Long but the Years are Short. The little things you do every day matter more than the big things you try to do once in a while.
+- Being right is an illusion: choose values you can control, learn from failure, commit to things and narrow your options.
+- Identify and write down your core Principles: fundamental truths to keep you on goal.
+- Build up to big goals with low level goals. Balance deliberate vs emergent strategy.
+- Choose interesting work.
+- Avoid our hidden bias to blame and reward Talent. Effort and Grit is more valuable than Talent; you can go very very far with Deliberate and Intelligent Practice.
+- Be in permanent beta and prioritize learning. Learning is more important than Money. Constant learning.
+- Know yourself. Know your competitive advantage.
+- Pursue breakout opportunities doggedly.
+- There are 2 levels of Networking you should pursue: Deep Professional Alliances, and broad, weak acquaintances. Both can be valuable. Relationships need constant work but have a long term payoff.
+- Satisfaction = Motivation + Discipline
+- Apprentice under a mentor, then outgrow.
+- To reach Mastery: Challenge what you have learned. Broaden your mind. Practice skills until they are automatic. Focus on the bigger picture.
+- The dominant Medium of our era defines our ideas of truth.
+- New tech is always underestimated as extending existing tech.
+- Play to your strengths; look for strength in others; deal with coworker frustration by involving their strengths.
+- Death is a part of life; live life with meaning while facing death.
+- A Growth mindset seeks Development, views Failures as Opportunities, and relish Difficulties. Changing your mindset: Changing role models, reaching out for support, talking about mistakes.
+- Play Infinite Games: see a series of moments, endless possibilities, no clear winners, treat it as play, and liberated from the past.
+- Grab attention, define a niche, and command loyalty.
+- Be fascinated by what you do, stay in flow.
+- Eat to Live: >2lbs of greens a day, get 90% of your calories from plants.
+- The Resistance opposes all our creative endeavors. Treat your dream like a job and work at it.
+- Invoke muses
+- Fight hierarchy
+- Own a territory.
+- Choosing careers: Making a difference, freedom, flow.
+- Overcome fear of career change
+- Avoid the hedonic treadmill
+- Take risks, have clear preferences, build a business. Avoid laziness and arrogance.
+- The Information age has become the Conceptual Age: Emphasis on left-brain has given way to "right directed thinking", where Design, Story, Symphony, Empathy, Play, and Meaning have gained more importance today.
+- Be a Linchpin. Linchpins are indispensable artists who find their own way instead of taking instruction, who put emotional labor into their work and gain a reputation for it, who choose to fight fear and discomfort by repeat exposure instead of retreat.
+- We mistake luck for skill (the narrative fallacy) and forget that life is non-linear and path-dependent. Going the last mile often has asymmetric payoff, and also pay attention to overconfidence in risks you don't fully know (Ludic fallacy).
+- Much of Media is noise. Don't listen to noise.
+- "Do what you love" is wrong. Learn to love what you do through achieving Mastery, Autonomy, and deep Relationships.
+- Mastery is achieved by having a craftsman mindset focusing on rare and valuable skills, making small bets with a remarkable end goal, in the Adjacent Possible.
+
+### Books:
+
+- [Meditations by Marcus Aurelius](https://twitter.com/swyx/status/948844674315366400)
+- [Why Buddhism Is True by Robert Wright](https://twitter.com/swyx/status/964193985530036224)
+- [The Happiness Project by Gretchen Rubin](https://twitter.com/swyx/status/951514989755555840)
+- [The Subtle Art of Not Giving a F*ck by Mark Manson](https://twitter.com/swyx/status/951712433017516032)
+- [Principles by Ray Dalio](https://twitter.com/swyx/status/952232991455174656)
+- [Grit by Angela Duckworth](https://twitter.com/swyx/status/954751334959501312)
+- [The Startup of You by Reid Hoffman](https://twitter.com/swyx/status/954751334959501312)
+- [How will you Measure Your Life by Clay Christensen](https://twitter.com/swyx/status/957361180900757505)
+- [Mastery by Robert Greene](https://twitter.com/swyx/status/958239930454507520)
+- [Amusing Ourselves To Death](https://twitter.com/swyx/status/960271016529408002)
+- [Strengthsfinder by Tom Rath](https://twitter.com/swyx/status/961738346761543680)
+- [When Breath Becomes Air by Paul Kalanithi](https://twitter.com/swyx/status/964259552370839559)
+- [Mindset by Carol Dweck](https://twitter.com/swyx/status/970043624267370496)
+- [Finite and Infinite Games by James Carse](https://twitter.com/swyx/status/972936304441921536)
+- [How the World Sees You by Sally Hogshead](https://twitter.com/swyx/status/973253321518612480)
+- [Eat to Live by Joel Fuhrman](https://twitter.com/swyx/status/974341489710043140)
+- [The War of Art by Steve Pressfield](https://twitter.com/swyx/status/976644855899262977)
+- [How To Find Fulfilling Work by Roman Krznaric](https://twitter.com/swyx/status/977314695635001346)
+- [Rich Dad, Poor Dad by Robert Kiyosaki](https://twitter.com/swyx/status/977725758297772033)
+- [A Whole New Mind by Daniel Pink](https://twitter.com/swyx/status/978085452975673344)
+- [Linchpin by Seth Godin](https://twitter.com/swyx/status/980217246726443009)
+- [Fooled by Randomness by Nassim Taleb](https://twitter.com/swyx/status/980231808624283649)
+- [The Black Swan by Nassim Taleb](https://twitter.com/swyx/status/980236314468642816)
+- [So Good They Can't Ignore You by Cal Newport](https://twitter.com/swyx/status/980286751657865216)
